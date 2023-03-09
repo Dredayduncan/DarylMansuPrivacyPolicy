@@ -28,4 +28,4 @@ We may update this Privacy Policy from time to time. Any changes we make will be
 
 Contact Us
 
-If you have any questions or concerns about this Privacy Policy, please contact us using the contact information provided on our website.
+If you have any questions or concerns about this Privacy Policy, please contact us using the contact information provided on our website: https://darylmansu.com/
